@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @hardikgoel2004
+- 👋 Hi, I’m @hardikgoyal2004
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on Gaming
+- 💞️ I’m looking to collaborate on anime, python or gaming.
 - 📫 Follow me on Instagram @hardik109444
 
 <!---
